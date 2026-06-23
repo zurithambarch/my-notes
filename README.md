@@ -1,0 +1,2 @@
+# my-notes
+SEO content
